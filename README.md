@@ -2,7 +2,7 @@
 
 - 05111940000088 Muhammad Haikal Aria Sakti
 
-- 05111940000190  David Raphwaldo Martuarja
+- 05111940000190  David Ralphwaldo Martuaraja
 
 - 05111940000207 Mohammad Thoriq Huda
 
